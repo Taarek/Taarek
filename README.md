@@ -1,6 +1,6 @@
 # Yo, I'm Tarek 🥳
 
-I'm a 24 (currently, until I forget to update this >\_>) year old dude from good old cold Sweden.❄️
+I'm a dude from good old cold Sweden spending his days in a DC.❄️
 
 Places you can find me at:
 | Service | Name |
